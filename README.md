@@ -4,4 +4,4 @@
 
 ## Projeto Entregue!
 
-Segue projeto como solicitado. Meu tema escolhido foram sobre séries de televisão preferidas!
+Segue projeto como solicitado. Meu tema escolhido foi sobre séries de televisão preferidas!
